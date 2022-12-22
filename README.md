@@ -1,1 +1,1 @@
-maximilliar.github.io/uberpartners
+https://maximilliar.github.io/uberpartners/
